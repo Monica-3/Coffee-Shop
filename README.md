@@ -1,0 +1,5 @@
+![Screenshot (180)](https://github.com/Monica-3/Coffee-Shop/assets/101280403/296953b8-7f0d-476a-a0c7-41657fc47555)
+![Screenshot (179)](https://github.com/Monica-3/Coffee-Shop/assets/101280403/6ce0abdd-647e-4e75-a01f-1f9769844da3)
+![Screenshot (178)](https://github.com/Monica-3/Coffee-Shop/assets/101280403/38091ce8-18d8-4f5d-858b-43b232d06eb9)
+![Screenshot (177)](https://github.com/Monica-3/Coffee-Shop/assets/101280403/13b99d8f-7c02-41b1-9904-5bc4670fa3d8)
+![Screenshot (176)](https://github.com/Monica-3/Coffee-Shop/assets/101280403/9b211751-34de-4fe3-8988-1a0d5301fe07)
